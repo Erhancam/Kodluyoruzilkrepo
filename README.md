@@ -23,5 +23,5 @@ Pull requestler kabul edilir. Büyük değişiklikler için lütfen önce neyi d
 [MIT](https://choosealicense.com/licenses/mit/)
 
 ## Ilk Resim
-![Ilk Resim](https://i.pinimg.com/736x/54/da/f2/54daf2a223132f4916496515dc2d149c.jpg)
+![Ilk Resim](https://w0.peakpx.com/wallpaper/405/229/HD-wallpaper-fenerbahce-badges-dispatch-fener-firefighter-forma-logo-real-time-turkey.jpg)
 
